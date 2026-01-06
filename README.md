@@ -26,4 +26,4 @@ We connect highly educated women on family visas—who are currently unemployed�
 [LinkedIn](https://linkedin.com/in/muhammed-shabeer-) | [Portfolio](https://linktr.ee/muhammedshabeer)
 
 ---
-*Made with ❤️ in Doha, Qatar.*
+*Made with ❤️ in Qatar.*
